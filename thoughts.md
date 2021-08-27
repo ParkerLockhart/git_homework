@@ -10,3 +10,7 @@ I'm also committing to really trying to interact with my cohort mates. Usually I
 
 **shoutout**
 A huge thank you to my friend Sergio for contacting me to cheer me on before my first class and checking in to see how its going!  
+
+**thoughts during my third session in Mod0**
+I'm diggin this
+Getting the hang of it maybe?
